@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NataEmrys
 - 👀 I’m interested in Web3 and AI
 - 🌱 I’m currently learning all new stuff in the crypto world
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on something biger in this world.
 - 📫 How to reach me? @NataEmrys in Telegram
 - 😄 Pronouns: Pirat
 - ⚡ Fun fact: I know humans soul beter then myself
